@@ -34,7 +34,7 @@
 
 ###
 
-<p align="left">fickin non sharing and alterhuman user, mood can swings very quickly, can be aggressive without meaning to, don't talk abt trigger things if you don't have permission. multishipper, subkit, soukoku and doublefedora fan (sayin ts bcs some ppl hav their dni w the fandom of this ships). My english isnot that good and feel free to correct me, please use tone tags when u sayin isn't something that is oblivious.</p>
+<p align="left">fictionkin selective sharing and alterhuman user, mood can swings very quickly, can be aggressive without meaning to, don't talk abt trigger things if you don't have permission. multishipper, subkit, soukoku and doublefedora fan (sayin ts bcs some ppl hav their dni w the fandom of this ships). My english isnot that good and feel free to correct me, please use tone tags when u sayin isn't something that is oblivious.</p>
 
 ###
 
