@@ -30,7 +30,7 @@
 
 ###
 
-<p align="left">basic dni, people with little patience, people prejudiced against shipps, darkshippers, anti fickin or therians, over seventeen, people who make fun of me, any problematic idol supporter, sensitive people (it's better to keep your distance, for your own good).</p>
+<p align="left">basic dni, people with little patience, people prejudiced against shipps, darkshippers, anti fickin or therians, over seventeen (unless its for cuddles), people who make fun of me, any problematic idol supporter, sensitive people (it's better to keep your distance, for your own good).</p>
 
 ###
 
